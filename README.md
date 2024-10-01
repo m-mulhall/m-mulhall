@@ -6,3 +6,5 @@ I am a student at Southern Alberta Institute of Technology (SAIT), where I am pu
 
 Outside of an interest in interactive design, I have an interest in photography.
 
+I am excited about the interactive design community's future and my involvement in it, and I am eager to develop my skills further through collaboration with others!
+
